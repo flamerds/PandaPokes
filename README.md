@@ -2,6 +2,8 @@
 Pokemon events and sets all kept here for yall
 
 Credit:
-flamerds - being juicy\n
-DJ Panda - Pokemon\n
+flamerds - being juicy
+
+DJ Panda - Pokemon
+
 Cainan - Pokemon
