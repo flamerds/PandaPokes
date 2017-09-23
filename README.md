@@ -2,7 +2,7 @@
 Pokemon events and sets all kept here for yall
 
 Credit:
-flamerds - being juicy
+Flamerds🔥 - Being E X T R A Juicy
 
 DJ Panda - Pokemon
 
